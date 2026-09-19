@@ -12,7 +12,13 @@
     <summary>about me Ი𐑼</summary>
 
 - hello yes hi i am vincent / vinn!
-- @toastedmarshmellows & milo are the best ok ok bye
+- @toastedmarshmellows & @chocolatepillows are the best ok ok bye
+- yumeshipper! doubles dni pls ^_^
+> johhny cade : nonsharing
+
+>  tony stonem : nonsharing
+
+> jeff the funk: nonsharing
 </details>
 
 <details>
