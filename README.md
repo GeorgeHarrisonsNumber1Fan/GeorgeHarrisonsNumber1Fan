@@ -14,11 +14,20 @@
 - hello yes hi i am vincent / vinn!
 - @toastedmarshmellows & @chocolatepillows are the best ok ok bye
 - yumeshipper! doubles dni pls ^_^
+- i have severe jealousy issues
+- bpd , depression , anxiety
+- i can be insensitive
+- i do say rude things
+- bcz of my jealousy issues if you mean smth to me i might be upset that you with other ppl 
 > johhny cade : nonsharing
 
 >  tony stonem : nonsharing
 
 > jeff the funk: nonsharing
+
+> price cod: nonsharing
+
+> Ada Wong nonsharing
 </details>
 
 <details>
