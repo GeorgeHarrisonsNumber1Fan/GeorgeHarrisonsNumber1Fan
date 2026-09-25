@@ -27,7 +27,7 @@
 
 > price cod: nonsharing
 
-> Ada Wong nonsharing
+> Ada Wong : nonsharing
 </details>
 
 <details>
